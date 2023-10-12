@@ -1,5 +1,5 @@
 If you have been a fan of Monkey Mart and feel addicted to the challenge of stall management skills, Monkey Mart will not disappoint you. You play as a baby monkey, managing all the products you create and sell to customers. Run your store and serve your customers in the best way while you still have to do the job of harvesting crops like corn or eggs. You will have to arrange the shelves, manage the stalls, replenish goods when the shelves are out of stock, and allocate goods in a reasonable way for shoppers to shop most conveniently. Monkey Mart allows you to experience the excitement of running a store, making tough decisions, and getting the most out of your store.
-
+Play for free at: https://monkeymart.org
 Unique and outstanding features of Monkey Mart.
 There will be many different levels for you to manage.
 At Monkey Mart, there will be many levels for you to manage your stall, and when you have enough money, you can upgrade your skills to work more efficiently and quickly. With each level you pass, the profit from your stall will increase. When passing the levels, the game will become more difficult, and you will have to manage the monkeys to help and remind them when they are lazy to increase productivity and earn more money for the stall.
